@@ -30,7 +30,7 @@ Katy Perry,Beyoncé,
 
 自己写歌
 Kesha,Jack Johnson,Justin Bieber,Jessie J,Katy Perry,Sia,James Blunt,Pink,Taylor Swift,Chris Brown,Taylor Momsen,Beyoncé,Dido,Ne-Yo,Avril Lavigne
-One Direction,Bruno Mars,
+One Direction,Bruno Mars,OneRepublic,Maroon 5
 
 自己写歌也给别人写歌
 
@@ -40,9 +40,13 @@ One Direction,Bruno Mars,
 Arthur Hammerstein （because of you lyricist）
 Green Day - Billie Joe Armstrong （wake me up when september ends lyricist）
 OneRepublic - Ryan Tedder （Counting Stars Lyricist）
+Maroon 5 （Maroon 5 Sugar lyricist）
+Passenger （passenger let her go lyricist）
 著名作曲者
 Avril Lavigne （avril lavigne tomorrow composer）
 OneRepublic - Ryan Tedder （Counting Stars composer）
+Maroon 5 （Maroon 5 Sugar composer）
+Passenger （passenger let her go composer）
 
 -
 
