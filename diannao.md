@@ -22,3 +22,6 @@ bbs
 http://www.macx.cn/forum-2000-1.html
 
 http://bbs.feng.com/thread-htm-fid-19.html
+
+http://wap.9.7do.net/resources-75-1.html
+
