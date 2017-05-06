@@ -29,5 +29,8 @@ http://wap.9.7do.net/resources-75-1.html
 
 https://www.macpeers.com/
 
+http://xclient.info/ [1](http://xclient.info/a/a015de0d-acbd-a5c8-f5ca-bd78f6ae6bb4.html#让Keygen系列激活工具成功运行在10.12上的方法) [2](http://xclient.info/a/50ebed5d-9015-9340-893b-dfb9eaa275cc.html#让Special-K系列Patch工具运行在macOSsierra10.12上)
+
+http://www.sdifenzhou.com/
 
 -
