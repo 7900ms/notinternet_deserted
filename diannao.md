@@ -11,6 +11,8 @@ http://www.maczapp.com/soft
 
 http://www.macappstore.net/mac-app-top/
 
+http://macappstore.org/wget/
+
 -
 
 https://www.macupdate.com/
