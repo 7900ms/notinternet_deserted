@@ -12,6 +12,8 @@
 
 [澳洲新快网](http://www.xkb.com.au)
 
+[ABC News](http://www.abc.net.au/news/)
+
 = = = 地方性报纸 = = =
 
 [德国之声](http://www.dw.com/zh)
