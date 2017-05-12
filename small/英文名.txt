@@ -64,4 +64,6 @@ https://www.babble.com/baby-names/boy-names-that-start-with-s/
 G most popular boy names starting with s reddit
 Samuel, Sullivan, Sawyer, Sebastian
 https://www.babycenter.com/babyNamerSearch.htm?gender=MALE&includeExclude=INCLUDE&includeLimit=500&excludeLimit=100&meaning=&origin=&theme=&startsWith=s&endsWith=&containing=&numberOfSyllables=&sort=az
+https://www.babycenter.com/babyNamerSearch.htm?gender=MALE&includeExclude=INCLUDE&includeLimit=1000&excludeLimit=100&meaning=&origin=&theme=&startsWith=s&endsWith=&containing=&numberOfSyllables=2&sort=az
+
 
