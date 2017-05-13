@@ -40,7 +40,7 @@ chaturbate
 [myfreecams](https://twitter.com/ClaraBabyLegs/status/861737234008989696)
 tumblr
 
-(好：有网站小编 不是网友[瞎胡闹](https://www.google.com/search?q=为什么知乎有那么多如何评价xx的问题但quora没有&ie=utf-8&oe=utf-8))
+(好：有网站小编 不是网友[瞎胡闹](https://www.google.com/search?q=为什么知乎有那么多如何评价xx的问题但quora没有&ie=utf-8&oe=utf-8) , 有编辑的 不是单人[瞎搞](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-没编辑的杂志会导致揽活儿坑人.md)的)
 
 -
 
