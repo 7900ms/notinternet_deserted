@@ -14,7 +14,7 @@
 
 所以我买了这个来锻炼身体
 
-<img src="http://i.imgur.com/TDlf8KI.jpg" alt="alt text" width="500px">
+<img src="http://i.imgur.com/TDlf8KI.jpg" alt="alt text" width="300px">
 
 
 [--](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-muscle)
