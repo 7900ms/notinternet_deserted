@@ -30,7 +30,7 @@
 = = = 脑容量回收站 = = =
 
 not internet:
-(有排序,按照网络打手的程度)
+(有排序,按照[虚拟世界](https://github.com/7900ms/notinternet_deserted/tree/master/book)网络打手的程度)
 
 zhihu
 v2ex
