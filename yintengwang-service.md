@@ -1,6 +1,7 @@
 
 信息服务
 (有排序,按照有没有兴致看,因特网是有服务精神的)
+有真实的去处(健身房)的人-[在网上有个据点](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md)
 
 [Google](https://www.google.com/ncr)
 
