@@ -14,6 +14,9 @@
 
 所以我买了这个来锻炼身体
 
+![](http://i.imgur.com/TDlf8KI.jpg)
+
+[--](https://github.com/7900ms/000nottheater_deserted_systemthunder/tree/master/slow/on-muscle)
 
 ```
 真实世界12小时，睡觉8小时，虚拟世界4小时
