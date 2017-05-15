@@ -26,7 +26,7 @@
 非常痛苦的
 ```
 
-[隔离](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md)
+##[隔离](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-separating-隔离导致更好的隔离.md)
 <sub>
 争取一次隔离过。<a href="https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-鼓儿-不要拖泥带水.md">一次过</a>。不要拖泥又带水，如果不隔离：
 如果在虚拟世界里寻找真实，那么怎么面对真实的自己
