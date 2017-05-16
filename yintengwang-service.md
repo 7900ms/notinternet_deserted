@@ -15,6 +15,8 @@
 
 [ABC News](http://www.abc.net.au/news/)
 
+[SBS News cn](http://www.sbs.com.au/yourlanguage/mandarin/zh-hans/article/2015/08/28/lai-gao-xuan-deng-ao-da-li-ya-de-zheng-zhi-ti-xi?language=zh-hans)
+
 = = = 地方性报纸 = = =
 
 [德国之声](http://www.dw.com/zh)
