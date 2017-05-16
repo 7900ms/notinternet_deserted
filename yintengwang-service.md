@@ -15,7 +15,7 @@
 
 [ABC News](http://www.abc.net.au/news/)
 
-[SBS News cn](http://www.sbs.com.au/yourlanguage/mandarin/zh-hans/article/2015/08/28/lai-gao-xuan-deng-ao-da-li-ya-de-zheng-zhi-ti-xi?language=zh-hans)
+[SBS News cn](http://www.sbs.com.au/yourlanguage/mandarin/zh-hans/article/2015/08/28/lai-gao-xuan-deng-ao-da-li-ya-de-zheng-zhi-ti-xi?language=zh-hans#G-澳洲-政治-体系)
 
 = = = 地方性报纸 = = =
 
