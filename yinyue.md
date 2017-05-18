@@ -6,3 +6,5 @@
 = = = 脑容量回收站 = = =
 
 [listen1](http://listen1.github.io/listen1/)
+
+[lrcgc](http://www.lrcgc.com)
