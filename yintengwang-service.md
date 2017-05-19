@@ -19,6 +19,8 @@
 
 [sachinese](http://www.sachinese.com/)
 
+[手拉手](https://github.com/7900ms/notinternet_deserted/blob/master/small/澳洲华人及中国留学生之家.md)
+
 = = = 地方性报纸 = = =
 
 [德国之声](http://www.dw.com/zh)
