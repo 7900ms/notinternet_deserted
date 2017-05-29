@@ -22,6 +22,14 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [twitch chess](https://www.twitch.tv/directory/game/Chess)
 - [douyu KOF](https://v.douyu.com/show/ljXqeO748n7xywGB#25:30#女警舞#https://github.com/7900ms/github_channels/blob/master/seen.txt)
 
+信号：
+- 温家宝、吴仪 习(王立军)
+- 江(徐才厚、郭伯雄) 薄(周永康 王立军) 曾庆红(曾伟 宋林 肖建华)
+- 外围: 罗宇,,十九大(2017.11[)](https://zh.wikipedia.org/wiki/中国共产党第十九次全国代表大会)
+- 正义: 自由主义,法律保护人的权利[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-lightshelf)
+
+- 可以不需要看的 看着玩：罗宇[1](http://zhanlve.org/?p=689) [2](http://www.duping.net/XHC/show.php?bbs=10&post=1346697)
+
 = = =
 
 周子瑜：
