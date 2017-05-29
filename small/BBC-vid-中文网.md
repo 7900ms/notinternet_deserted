@@ -15,6 +15,12 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 = = =
 
+每日新闻：
+- [全球新闻完整版](http://www.ntdtv.com/xtr/gb/prog1244.html/新唐人全球新闻.html)
+- [全球看中国](http://www.ntdtv.com/xtr/gb/prog1244.html/新唐人全球新闻.html)
+
+= = =
+
 周子瑜：
 
 > [周子瑜](https://www.youtube.com/watch?v=GuozQT4HjQU)
