@@ -15,7 +15,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 = = =
 
-每日新闻：
+各家电视台的每日新闻：
 - [全球新闻完整版](http://www.ntdtv.com/xtr/gb/prog1244.html/新唐人全球新闻.html)
 - [全球看中国](http://www.ntdtv.com/xtr/gb/prog1244.html/新唐人全球新闻.html)
 - [CNN 每日新闻](https://tw.voicetube.com/channel/cnn_student_news)
