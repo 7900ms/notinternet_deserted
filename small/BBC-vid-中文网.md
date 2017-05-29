@@ -25,7 +25,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 信号：
 - 温家宝、吴仪 习(王立军)
 - 江(徐才厚、郭伯雄) 薄(周永康 王立军) 曾庆红(曾伟 宋林 肖建华)
-- 外围: 罗宇,郭文贵,十九大(2017.11[)](https://zh.wikipedia.org/wiki/中国共产党第十九次全国代表大会),让朝廷提早[崩溃](https://program-think.blogspot.com/2015/03/Big-Tiger-Zeng-Qinghong.html#越作死就会死--俺个人比较希望：双方公开翻脸，进而导致朝廷高层的分裂。出现这种局面有可能会让朝廷提早崩溃（苏共就是这样崩盘的）。崩盘之后怎样：还没崩、没想过),[其他](https://github.com/7900ms/notinternet_deserted/blob/master/small/BBC等看看外国人怎么说.txt#张丹红何清涟)
+- 外围: 罗宇,郭文贵,十九大(2017.11[)](https://zh.wikipedia.org/wiki/中国共产党第十九次全国代表大会),让朝廷提早[崩溃](https://program-think.blogspot.com/2015/03/Big-Tiger-Zeng-Qinghong.html#越作死就会死--俺个人比较希望：双方公开翻脸，进而导致朝廷高层的分裂。出现这种局面有可能会让朝廷提早崩溃（苏共就是这样崩盘的）。崩盘之后怎样：还没崩、没想过)让我的老板投对胎,[其他](https://github.com/7900ms/notinternet_deserted/blob/master/small/BBC等看看外国人怎么说.txt#张丹红何清涟)
 - 正义: 自由主义,法律保护人的权利[-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/local-lightshelf)
 
 - 可以不需要看的 看着玩：罗宇[1](http://zhanlve.org/?p=689) [2](http://www.duping.net/XHC/show.php?bbs=10&post=1346697)
