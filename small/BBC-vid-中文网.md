@@ -9,7 +9,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 [BBC vid](https://www.youtube.com/user/BBCZhongwen)
 
-[新唐人 vid](https://www.youtube.com/user/NTDAPTV)
+[新唐人 vid](https://www.youtube.com/results?search_query=新唐人#老外看中国)
 
 [中视新闻 vid]()
 
