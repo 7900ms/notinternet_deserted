@@ -24,6 +24,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 我可能走错地方了：
 - 那里的人们是下意识的[保皇党](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/聊天记录2.md#即使声称自己也认为土共做得很烂,仍然不允许国家乱。没觉得土共是必须推翻的暴政)
+- 那里的人们是下意识的恼羞成怒,在听到‘乃们的执政党就是垃圾,因为它[一直在](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md#因为你们的文化就是到处杀杀别人杀自己)杀自己人’时
 - 那里的人们是下意识的认为党内斗胜或反贪能救国
 
 我可能走对地方了：
@@ -31,6 +32,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - 那里的人们认为 推翻暴政为好
 - 那里的人们认为 国家分裂 再联邦 会更好(#国家越乱越好,能加速土共的倒台)
 - 那里的人们认为 政治问题是所有人的事,不是我一个人的事,当前就是人民没种,我一个人有种是没用的
+- 那里的人们认为 自己是粤国人
 
 希望：
 - 我不懂 我不知道 不是我干的
