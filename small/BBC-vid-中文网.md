@@ -22,7 +22,15 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [twitch chess](https://www.twitch.tv/directory/game/Chess)
 - [douyu KOF](https://v.douyu.com/show/ljXqeO748n7xywGB#25:30#女警舞#https://github.com/7900ms/github_channels/blob/master/seen.txt)
 
-信号：
+希望：
+- 我不懂 我不知道 不是我干的
+- 我不给任何派系背书
+- 我的感觉：法律是用来保护人权的(生命权 财产权 自由权)
+- 我的感觉：人权如果不受到，可以分裂 成立联邦制国家 然后多党制并立法保护人权
+- 我的感觉：政治问题是一代人的问题，目前是一代人都没种 我有种 但是没办法
+
+土共分崩瓦解的信号：
+- 人民上街游行
 - 温家宝、吴仪 习(王立军)
 - 江(徐才厚、郭伯雄) 薄(周永康 王立军) 曾庆红(曾伟 宋林 肖建华)
 - 外围: 罗宇,郭文贵,十九大(2017.11[)](https://zh.wikipedia.org/wiki/中国共产党第十九次全国代表大会),让朝廷提早[崩溃](https://program-think.blogspot.com/2015/03/Big-Tiger-Zeng-Qinghong.html#越作死就会死--俺个人比较希望：双方公开翻脸，进而导致朝廷高层的分裂。出现这种局面有可能会让朝廷提早崩溃（苏共就是这样崩盘的）。崩盘之后怎样：还没崩、没想过)让我的老板投对胎,[其他](https://github.com/7900ms/notinternet_deserted/blob/master/small/BBC等看看外国人怎么说.txt#张丹红何清涟)
