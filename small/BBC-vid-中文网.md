@@ -22,9 +22,19 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [twitch chess](https://www.twitch.tv/directory/game/Chess)
 - [douyu KOF](https://v.douyu.com/show/ljXqeO748n7xywGB#25:30#女警舞#https://github.com/7900ms/github_channels/blob/master/seen.txt)
 
+我可能走错地方了：
+- 那里的人们是下意识的[保皇党](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/聊天记录2.md#即使声称自己也认为土共做得很烂,仍然不允许国家乱。没觉得土共是必须推翻的暴政)
+- 那里的人们是下意识的认为党内斗胜或反贪能救国
+
+我可能走对地方了：
+- 那里的人们认为 法律保护人权为好,只要没有保护人权,那么zf就要被推翻 (不会去跟你掰扯土共内部如何)
+- 那里的人们认为 推翻暴政为好
+- 那里的人们认为 国家分裂 再联邦 会更好(#国家越乱越好,能加速土共的倒台)
+- 那里的人们认为 政治问题是所有人的事,不是我一个人的事,当前就是人民没种,我一个人有种是没用的
+
 希望：
 - 我不懂 我不知道 不是我干的
-- 我不给任何派系背书
+- 我不给任何派系背书。我对土共内部不感兴趣
 - 我的感觉：法律是用来保护人权的(生命权 财产权 自由权)
 - 我的感觉：法律应该保护人的权利，而不是成为行政手段
 - 我的感觉：人权如果不受到，可以分裂 成立联邦制国家 然后多党制并立法保护人权
