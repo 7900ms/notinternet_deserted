@@ -23,7 +23,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [douyu KOF](https://v.douyu.com/show/ljXqeO748n7xywGB#25:30#女警舞#https://github.com/7900ms/github_channels/blob/master/seen.txt)
 - [今日影评](http://tv.cctv.com/lm/jryp#品头论足话电影)
 - [世界电影之旅](http://tv.cctv.com/lm/sjdyzl)
-- [第十放映室](http://tv.cctv.com/lm/d10fys/)
+- [第十放映室](http://tv.cntv.cn/videoset/C14345) [2](http://tv.cctv.com/lm/d10fys/)
 
 
 我可能走错地方了：
