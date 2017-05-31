@@ -43,6 +43,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - 那里的人们认为 国家分裂 再联邦 会更好(#国家越乱越好,能加速土共的倒台)
 - 那里的人们认为 政治问题是所有人的事,不是我一个人的事,当前就是人民没种,我一个人有种是没用的
 - 那里的人们认为 自己是粤国人
+- 你可能来对了地[方](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder-你可能来错地方了.md)
 
 希望：
 - 我不懂 我不知道 不是我干的
