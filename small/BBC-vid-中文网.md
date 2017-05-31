@@ -47,7 +47,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - 我的感觉：政治问题是一代人的问题，目前是一代人都没种 我有种 但是没办法
 
 土共分崩瓦解的信号：
-- [疯狂世界](https://www.v2ex.com/t/364881#太疯狂了) [1](https://www.v2ex.com/t/308048?p=1#现实太疯狂) [2](https://www.v2ex.com/t/364549#幻想大陆)
+- [疯狂世界](https://www.v2ex.com/t/364881#感觉就是太疯狂了) [1](https://www.v2ex.com/t/308048?p=1#感觉就是太疯狂了) [2](https://www.v2ex.com/t/364549#感觉就是幻想大陆)
 - 人民上街游行
 - 温家宝、吴仪 习(王立军)
 - 江(徐才厚、郭伯雄) 薄(周永康 王立军) 曾庆红(曾伟 宋林 肖建华)
