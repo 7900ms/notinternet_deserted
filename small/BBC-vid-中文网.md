@@ -17,7 +17,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 [tw三立LIVE新聞](https://www.youtube.com/user/setnews159)
 
-[tw東森新聞 CH51](https://www.youtube.com/user/newsebc)
+[tw東森新聞 CH51](https://www.youtube.com/user/newsebc) [1](https://www.youtube.com/watch?v=jzdChSfCayo)
 
 = = =
 
