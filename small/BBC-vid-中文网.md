@@ -19,6 +19,8 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 [tw東森新聞 CH51](https://www.youtube.com/user/newsebc) [1](https://www.youtube.com/watch?v=jzdChSfCayo) [2](https://www.youtube.com/watch?v=-VydqY3Zc5M) [3](https://www.youtube.com/watch?v=KvS6QSOBniw#计算每天摄入的卡路里，摄入热量比消耗的多-增重)
 
+[TomoNews Funnies](https://www.youtube.com/channel/UC4G3lPPWm6qtoWtRk4vyGwg) [1](https://www.youtube.com/watch?v=VpBNlmqW2ow)
+
 = = =
 
 各家电视台的每日播报：
