@@ -21,7 +21,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 [TomoNews Funnies](https://www.youtube.com/channel/UC4G3lPPWm6qtoWtRk4vyGwg) [1](https://www.youtube.com/watch?v=VpBNlmqW2ow)
 
-[東風衛視](https://www.youtube.com/watch?v=V85n8_j_GaQ)
+[東風衛視](https://www.youtube.com/watch?v=V85n8_j_GaQ) [1](https://www.youtube.com/watch?v=ew3t4j3GV_s)
 
 = = =
 
