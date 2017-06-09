@@ -34,7 +34,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [今日影评](http://tv.cctv.com/lm/jryp#品头论足话电影)
 - [世界电影之旅](http://tv.cctv.com/lm/sjdyzl)
 - [第十放映室](http://tv.cntv.cn/videoset/C14345) [2](http://tv.cctv.com/lm/d10fys/)
-- [impratical joker](https://www.youtube.com/watch?v=VI4ixTBo-c4) [-](https://twitter.com/_MADness_/status/872208337731026948)
+- [impratical joker](https://www.youtube.com/watch?v=VI4ixTBo-c4) [-](https://twitter.com/ItsFunnyJokers/status/873019335886999552) [-](https://twitter.com/_MADness_/status/872208337731026948)
 - [Top Gear]
 - [WWYD]
 
