@@ -34,8 +34,9 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [今日影评](http://tv.cctv.com/lm/jryp#品头论足话电影)
 - [世界电影之旅](http://tv.cctv.com/lm/sjdyzl)
 - [第十放映室](http://tv.cntv.cn/videoset/C14345) [2](http://tv.cctv.com/lm/d10fys/)
-- [impratical joker]
+- [impratical joker](https://www.youtube.com/watch?v=VI4ixTBo-c4) [-](https://twitter.com/_MADness_/status/872208337731026948)
 - [Top Gear]
+- [WWYD]
 
 我可能走错地方了：
 - 那里的人们是下意识的[保皇党](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/聊天记录2-反击.md#典型人是即使声称自己也认为土共做得很烂,仍然不允许国家乱。没觉得土共是必须推翻的暴政)
