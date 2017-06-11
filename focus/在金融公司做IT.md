@@ -10,7 +10,7 @@ http://www.bbc.com/zhongwen/simp/world-38685050#金融城的各大银行
 
 业务实施(翻译)人员 https://www.v2ex.com/t/365832
 
-不开救护[车](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-救护车.txt) https://www.accenture.com/cn-zh/careers/work-we-do-technology
+[自愿](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/Zhihua#自愿--去考虑在身份转化时唯一能互通的东西)不开救护[车](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/chain-救护车.txt) https://www.accenture.com/cn-zh/careers/work-we-do-technology
 
 ```
 个性化：
