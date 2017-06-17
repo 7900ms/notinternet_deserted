@@ -19,7 +19,7 @@ http://www.bbc.com/zhongwen/simp/world-38685050#金融城的各大银行
   如果我的数据不是自己产生的 (我的竞争对手也在争夺数据 ->)，那么我就无法控制我是数据 -> 我不玩啦！！！！！！！！ (-> 为了争夺数据，用和竞争对手匹配的战力/或比竞争对手更周到的战力 (更有助于争夺数据,快速变化来吸引人) -> 诱人的数据(设计师) -> 数据的安全 )
 ```
 
-
+身份论 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-Rob.txt)
 
 
 
