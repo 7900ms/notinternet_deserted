@@ -39,6 +39,7 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 - [WWYD]
 - [城市1对1](https://www.youtube.com/user/1ofthe1city)
 - [男左女右](http://audio.rbc.cn/#974音乐广播男左女右)
+- [Readmoo阅读最前线](https://news.readmoo.com/2015/01/10/here-is-how-to-be-a-mature-man/)
 
 我可能走错地方了：
 - 那里的人们是下意识的[保皇党](https://github.com/7900ms/000nottheater_deserted_systemsoftware/blob/master/local-lightshelf/聊天记录2-反击.md#典型人是即使声称自己也认为土共做得很烂,仍然不允许国家乱。没觉得土共是必须推翻的暴政)
