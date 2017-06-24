@@ -26,6 +26,6 @@ http://www.bbc.com/zhongwen/simp/world-38685050#金融城的各大银行
 $的角度-人们只图你的$ [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-Rob.txt#动手能力不是很强，但作业总能大高分) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/term-robber)
 
 ```
-信心：有信心长期在 IT 行业发展并且打算走中高端人才路线，而不是只打算做什么写个网站写个 app 这种廉价劳动 https://www.v2ex.com/t/370452?p=1
+信心：对于身份的信心：有信心长期在 IT 行业发展并且打算走中高端人才路线，而不是只打算做什么写个网站写个 app 这种廉价劳动 https://www.v2ex.com/t/370452?p=1 https://www.v2ex.com/t/370737
 ```
 -
