@@ -23,6 +23,8 @@ youtube [搜](https://www.youtube.com/results?search_query=中文网)：中文�
 
 [東風衛視](https://www.youtube.com/watch?v=V85n8_j_GaQ) [1](https://www.youtube.com/watch?v=ew3t4j3GV_s)
 
+[大粤国卫视](http://zb.zqseo.org.cn/m/#iptv.td73.cn/tv.php)
+
 = = =
 
 各家电视台的每日播报：
