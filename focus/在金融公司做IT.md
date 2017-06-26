@@ -21,7 +21,7 @@ http://www.bbc.com/zhongwen/simp/world-38685050#金融城的各大银行
 
 身份论 [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-Rob.txt)
 
-身份不明,狗狗世界对人的亵渎 [-](https://www.v2ex.com/notes/28704) [--](https://www.zhihu.com/question/37255819#G数据库开发。被坑了不懂考取证书)
+身份不明,狗狗世界对人的亵渎 [-](https://www.v2ex.com/notes/28704) [--](https://www.zhihu.com/question/37255819#G数据库开发。被坑了不懂考取证书) [-](https://stateofdev.com/c/backend#坑的合集)
 
 $的角度-人们只图你的$ [-](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/week-Rob.txt#动手能力不是很强，但作业总能大高分) [-](https://github.com/7900ms/000nottheater_deserted_systemsoftware/tree/master/supplementary/term-robber)
 
