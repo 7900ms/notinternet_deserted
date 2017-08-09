@@ -40,7 +40,7 @@ $的角度-人们只图你的$ [-](https://github.com/7900ms/000nottheater_deser
 ```
 写UML图 https://www.v2ex.com/t/381532#r_4618715   老赵 zhaojie 也是银行派的 IBM规范开发 
 https://www.v2ex.com/t/381532#r_4619141#针对某一个行业的软件（银行，证卷，医疗 等等） 那需要把软件工程 的那套流程大部分都走一遍才行, 才会有感觉 
-ER图，UML图 软件工程
+ER图，UML图 软件工程 draw.io 超级有感觉的
 ```
 
 
